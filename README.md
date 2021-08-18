@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ProofOfWatts (Not Quite 500)
+- 👋 Hi, I’m @ProofOfWatts (Not Quite 500) - AND possibly soon to be reborn again - urgh... 
 - 👀 I’m interested in ... Deadlifts & China, Incl. HK + Cute Animals
 - 🌱 I’m currently learning ... Everything I Can (Esp. Crypto, & Even NFT,  Related)
 - 💞️ I’m looking to collaborate on ... Open To Anything (Interesting & Fun - Not Legacy Finance - Had Enough Of That)
